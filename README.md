@@ -1,0 +1,91 @@
+# Snow Man – オドロウゼ！
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Don't you worry
+ギラギラの Fighter
+Don't you worry
+果てしない Desire
+Don't you worry
+明日はきっと Special
+踊らにゃ損々A-ha
+日々は騒然
+もうやんなっちゃうぜ
+ギリギリの攻防戦
+Get down
+疲れちゃうね
+最近不感症 エブリデイ
+Ummm oh no
+終わらないぜ
+つまりぼくら
+生かされてるドーパミン
+気づけば振り回されてる
+道化師
+でもUP＆DOWNも
+キミとならば楽しい
+ぐるぐるこの地球（フロア）は
+まわってく
+やめられない！
+リズムに乗って
+笑ってようぜ
+PO-PO-POP なステップで
+Yeah Yeah Yeah Yeah
+エンドロールまで
+一緒に観ようぜ
+キミと Fever Time
+ナナナナナ 今日は踊ろう
+ナナナナナ 今日は踊ろう
+Don't you worry
+ギラギラの Fighter
+Don't you worry
+果てしない Desire
+Don't you worry
+明日はきっと Special
+踊らにゃ損々A-ha
+期待ばっか大きくなって
+足取り重くなる Why, why？
+そうは言ったって
+キミの笑顔見るまで
+Hey, for sure
+終われないぜ
+今夜シェイク キミと沸かすファンタジー
+熱を上げるバイブスいとをかし
+動き始めた未来でみんな乾杯
+こっち来いよ！
+One more time
+何度転けたって
+笑ってようぜ
+PO-PO-POP なステップで
+Yeah Yeah Yeah Yeah
+アフターパーティまで
+楽しんでこうぜ
+エビバディ Fever Time
+ブギウギで弾ける Dancing
++81から高鳴る J-POP
+かませ運命（さだめ）上がれSensation
+正面突破で勝ち取る栄光
+Never give it up
+ガチで賑わす
+大事なもんは
+キミがくれたんだ
+そろそろいこうか
+ありのままで
+リズムに乗って
+笑ってようぜ
+PO-PO-POP なステップで
+Yeah Yeah Yeah Yeah
+エンドロールまで
+一緒に観ようぜ
+キミとFever Time
+ナナナナナ 今日は踊ろう
+ナナナナナ 今日は踊ろう
+Don't you worry
+ギラギラの Fighter
+Don't you worry
+果てしない Desire
+Don't you worry
+明日はきっと Special
+踊らにゃ損々A-ha
+One more time !
+```
